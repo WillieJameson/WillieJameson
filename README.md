@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **williejamesons26@gmail.com**
 
-- 📄 Know about my experiences [smakone.org](smakone.org)
+- 📄 Know about my experiences (smakone.org)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
